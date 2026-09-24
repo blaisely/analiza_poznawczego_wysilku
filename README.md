@@ -1,0 +1,1 @@
+# analiza_poznawczego_wysilki
